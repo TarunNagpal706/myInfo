@@ -1,1 +1,1 @@
-# myInfo
+# myInfo I have 12 Years of Experience in IT Company. I have knowlege about Website Designing & Website Developing. I Have Knowledge About many language like C, Cpp, Core Java, Mysql Database, Php, Woo Commerce, Wordpress, Html, Css, Js, Jquery, Bootstrap etc..
